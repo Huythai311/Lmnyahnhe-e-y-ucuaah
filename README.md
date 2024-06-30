@@ -1,2 +1,2 @@
-# Lmnyahnhe-e-y-ucuaah
+# Lmnyahnheeyeucuaah
 Key: thaidepzai
